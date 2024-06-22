@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @MAKAniMAKAsete;
+- 👀 I’m interested in programming, art and languages!
+- 🌱 I’m currently learning and practicing starting, planning and most importantly, FINISHING projects!
